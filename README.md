@@ -1,2 +1,2 @@
 # XD
-Buraya gelmene gerek yok
+Bunu okuyosan bilki burdaki dağınıklılık benim keyfimden kaynaklı
